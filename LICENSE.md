@@ -1,4 +1,4 @@
-#  
+#  Experience blox fruits like never before with blox fruits best Script, the #1 Script. Includes instant win and auto-sell for unbeatable performance.
 
 
 
